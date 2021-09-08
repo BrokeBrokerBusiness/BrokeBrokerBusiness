@@ -1,0 +1,2 @@
+- 👋 More than interested in the market, derivatives, and futures and sharing unique input on opinions, strategies and profiting.
+- If you could buy only 1 stock, and short 1 other for 8 weeks, what?
